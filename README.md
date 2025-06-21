@@ -1,0 +1,1 @@
+# badya_privacy_policy
